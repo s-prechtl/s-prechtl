@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @s-prechtl
 - 👀 I’m interested in programming, maths, computer sience, science, stuff.
-- 🌱 I’m currently learning @ HTL Steyr.
+- 🌱 I’m currently learning @ FH Hagenberg.
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me discord: iFucANrEAdThISUHaVEhiGhIq#3179
 
